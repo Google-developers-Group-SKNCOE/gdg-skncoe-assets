@@ -1,0 +1,1 @@
+# gdg-skncoe-assets
